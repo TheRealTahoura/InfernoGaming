@@ -1,2 +1,2 @@
 # InfernoGaming
-many things stuff 
+many things / stuff 
